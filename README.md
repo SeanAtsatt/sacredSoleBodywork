@@ -1,2 +1,2 @@
-# sacredsoultouch
-website for Sacred Soul Touch
+# Sacred Sole Bodywork
+website for Sacred Soul Bodywork
